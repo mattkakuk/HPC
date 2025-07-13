@@ -1,4 +1,4 @@
-**Original Post:**,https://halfpricecabinets.com/kitchen-remodeling-lake-worth-transform-your-home-with-style-and-functionality/.Thinking of giving your kitchen a facelift but dreading the potential cost? We
+**Original Post:**,https://halfpricecabinets.com/kitchen-remodeling-lake-worth-transform-your-home-with-style-and-functionality/.  Thinking of giving your kitchen a facelift but dreading the potential cost? We
 get it. A [kitchen remodel](https://goo.gl/maps/NU6TK1eTns6xw3Dt7) can be one
 of the most expensive home improvement projects you can take on. The cabinets
 alone can eat up a huge chunk of your budget. But what if we told you that you
